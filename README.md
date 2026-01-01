@@ -1,4 +1,4 @@
-## 👋 hey there Iam Dian!
+## 👋 hey there iam Dian!
 
 ### 🧑‍💻 About Me
 
